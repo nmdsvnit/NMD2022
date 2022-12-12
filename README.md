@@ -1,1 +1,2 @@
 # NMD2022
+The Department of Mathematics and Humanities celebrates National Mathematics Day on the birth anniversary of the great Indian Mathematician Srinivasa Ramanujan. We invite you all to participate in this wonderful event. The event starts at 09:30, 22nd December 2022 Student activities will start at 11:00. Valedictory Session will commence in the evening of  23rd December 2022.  M.Sc. and Ph.D. Events.
